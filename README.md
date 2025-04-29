@@ -10,3 +10,7 @@ line: elwing
 ## 作業1
 
 https://forms.gle/5Y8XFYKP2HwmKnqE6
+
+## 作業2(5/6)
+
+https://forms.gle/sgJrVWqvQHsacuUv7
